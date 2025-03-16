@@ -2,7 +2,7 @@
 - 👀 I’m interested in software development 
 - 🌱 I’m currently learning info tech
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me +234 8162786509
+- 📫 How to reach me +234 8129711809
 - 😄 Pronouns: ... He/She
 - ⚡ Fun fact: ...
 
